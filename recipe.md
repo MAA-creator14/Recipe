@@ -12,3 +12,4 @@
 - 2 tbsp pine nuts
 - 2 tbsp raisins
 - 3 tbsp red wine vinegar
+- 1–2 tbsp sugar
