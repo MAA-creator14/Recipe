@@ -9,3 +9,4 @@
 - 1 red bell pepper, diced
 - ½ cup green olives, sliced
 - 2 tbsp capers, rinsed
+- 2 tbsp pine nuts
