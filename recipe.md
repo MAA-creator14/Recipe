@@ -11,3 +11,4 @@
 - 2 tbsp capers, rinsed
 - 2 tbsp pine nuts
 - 2 tbsp raisins
+- 3 tbsp red wine vinegar
