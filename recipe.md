@@ -10,3 +10,4 @@
 - ½ cup green olives, sliced
 - 2 tbsp capers, rinsed
 - 2 tbsp pine nuts
+- 2 tbsp raisins
